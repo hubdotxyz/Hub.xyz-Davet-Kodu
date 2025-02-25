@@ -1,4 +1,4 @@
-# Hub.xyz-Davet-Kodu
+# Hub.xyz Davet Kodu nedir?
 Hub.xyz davet kodu YQLG olarak kullanılmaktadır. %10 bonus için hub.xyz'ye "YQLG" davet kodu ile kayıt olun.
 # Hub.xyz - Yapay Zeka ile Etkileşim ve Kripto Kazanımı
 
